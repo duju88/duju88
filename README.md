@@ -1,6 +1,10 @@
 ## 找短剧-免费短剧网盘资源在线观看
 
-<!--<https:/duju88.github.io>
+短剧网：<https://duju88.github.io>
+
+找剧网：<https://zhaoju.cc>
+
+<!--
 
 **duju88/duju88** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
